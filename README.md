@@ -1,1 +1,0 @@
-# shotel.github.io
